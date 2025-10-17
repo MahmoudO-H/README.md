@@ -9,7 +9,7 @@ https://images.pexels.com/photos/3051582/pexels-photo-3051582.jpeg
 https://images.pexels.com/photos/11816755/pexels-photo-11816755.jpeg
 https://images.pexels.com/photos/217316/pexels-photo-217316.jpeg
 https://images.pexels.com/photos/10154532/pexels-photo-10154532.jpeg
-https://images.pexels.com/photos/942872/pexels-photo-942872.jpeg--------image modifié à l'aide de ia sur photoshop
+https://images.pexels.com/photos/942872/pexels-photo-942872.jpeg--------image modifiée à l'aide de ia sur photoshop.
 Tous les images proviennent de pexels
 
 musique: Horror par Jed Herson li
